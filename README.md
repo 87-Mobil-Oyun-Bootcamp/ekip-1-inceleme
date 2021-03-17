@@ -1,0 +1,1 @@
+# ekip-1-inceleme
